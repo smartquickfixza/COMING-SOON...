@@ -1,2 +1,1 @@
-# COMING-SOON...
-About Us At SMART QuickFix, we believe vehicle care should be convenient, reliable, and done to the highest standard. Our company specializes in mobile SMART repairs, professional vehicle detailing, and on-site assistance for minor vehicle faults
+
